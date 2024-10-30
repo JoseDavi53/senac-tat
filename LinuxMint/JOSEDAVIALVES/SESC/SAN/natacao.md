@@ -1,0 +1,4 @@
+Borboleta
+Costas
+Peito
+Crawl
